@@ -6,6 +6,8 @@ The **Dex Paid Bot** gives you an **edge in crypto trading** by alerting you the
 
 ## 🔥 What is Dex Paid?
 
+![Dex Paid Bot in Action](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExd2FkeXJxc2RzMDBqd2Zma3ZzeGV1Y2lwNHluOTBwdXM5Mjg0ZndsbSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/0lhgeKHecNfwdV87j7/giphy.gif)
+
 When new cryptocurrencies launch on platforms like **Pump.fun** or **Raydium**, most **fly under the radar** of retail investors. However, the **most promising projects** take a crucial step: **they pay for an official Dexscreener profile**. 💰📊
 
 ### ⚡ Why This Matters
@@ -56,7 +58,7 @@ Want this **powerful tool** in your own **Discord server**? 🛠️ **Contact us
 
 📢 **Don't miss another opportunity to get ahead of the market!** Join **Noble** or **reach out** to add the **Dex Paid Bot** to your **trading arsenal**. 💰🔥
 
-**📩 Contact us:** [Join our Discord](http://discord.gg/whalesnipr)
+**📩 Contact us:** [Join our Discord](http://discord.gg/whalesnipr) [Insert contact information]
 
 ---
 
