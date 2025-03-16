@@ -56,7 +56,7 @@ Want this **powerful tool** in your own **Discord server**? 🛠️ **Contact us
 
 📢 **Don't miss another opportunity to get ahead of the market!** Join **Noble** or **reach out** to add the **Dex Paid Bot** to your **trading arsenal**. 💰🔥
 
-**📩 Contact us:** [Join our Discord](http://discord.gg/whalesnipr) [Insert contact information]
+**📩 Contact us:** [Join our Discord](http://discord.gg/whalesnipr)
 
 ---
 
